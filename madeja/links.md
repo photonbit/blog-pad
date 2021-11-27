@@ -13,6 +13,19 @@ post_excerpt: Linked links
 ### Volver
 
 - [Rebel Café](https://goo.gl/maps/vLNpyx3S8eAsAxLy9)
+- [Copenagen Flores](https://goo.gl/maps/BLLe3KfptUvfnbPi8)
+- [Copenagen Rato](https://goo.gl/maps/jowA1Ya1e4GkAtFLA)
+- [Bowls&Bar](https://goo.gl/maps/KZJxFXdjBqecc3kE6)
+
+### Probar
+
+- [Copenagen Cais do Sodre](https://goo.gl/maps/MexE8W5ALHDCwDfC7)
+- [Copenagen Alfama](https://goo.gl/maps/PnTwUpEckBv5CKQa8)
+- [Copenagen Alcantar](https://goo.gl/maps/zBGrrJDzNne93Eqc9)
+- [Unobvious.Lab](https://g.page/UnobviousLab)
+- [Los de esta lista](https://www.hoodpicker.com/posts/lisbon-coworking-wifi-cafes)
+
+## Non work cafes
 
 ### Probar
 
